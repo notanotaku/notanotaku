@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @notanotaku
+- 👀 I’m interested in 2d girls
+- 🌱 I’m currently learning the art of copy pasting code from stack overflow
+- 💞️ I’m looking to collaborate on the bed
+- 📫 If you for whatever purpose need to reach me my discord id is anotaku#7900 (dm's open)
